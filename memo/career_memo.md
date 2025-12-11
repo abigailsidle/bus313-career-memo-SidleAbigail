@@ -5,7 +5,7 @@
 **Date:** December 3, 2025  
 
 ## Introduction
-My name is Abigail Sidle, a junior pursuing a Business Management major. Some of my interests are reading, playing video games, and skateboarding. In this memo, I intend to reflect on my career journey thus far and discuss my current goals for my future trajectory.
+My name is Abigail Sidle, a junior pursuing a Business Management major. Some of my interests are reading, playing video games, and skateboarding. In this memo, I intend to reflect on my career journey thus far and discuss my current goals for my career trajectory.
 
 ## Career Objectives
 Beginning mid-September 2022, I was hired as a curbie for HEB (a grocery store in Texas). It was a lowest level job in the curbside department. The company required employees under 18, which I was at the time, to work at the lower positions (curbie, bagger, cart retreival, etc) for a minimum of 3 months before being promoted. I was promoted to in-store shopper as soon as my 3 months had elapsed. I worked as a shopper for 3 more months before being promoted to specialist (part-time management) in March. The location I worked had a total of 80-110 personnel in curbside that I got to know. During one shift, I could be managing, delegating, training, and over-seeing anywhere from 30-50 employees. I worked in this management position for 7 months before starting my education at UH Manoa in August 2023.
